@@ -1,8 +1,5 @@
 ## Hi there 👋
 
-
-![Banner](banner.png)
-
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
