@@ -1,9 +1,9 @@
-# Hi, I am CiCi Y. Cheng.
+# Hi, I am CiCi.
 
 <div align="center">
 <img height="500" alt="JPG" align="left" src="IMG_0181.jpg">
 </div>
 
-Thanks for visiting my GitHub. 
-I hope you're healthy, happy, and loved :) 
+Thanks for visiting my GitHub.  
+I hope you're healthy, happy, and loved :)  
 Have a wonderful day!
