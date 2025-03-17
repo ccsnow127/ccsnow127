@@ -12,4 +12,4 @@ Life is too good and short to hold onto grudges
 <br>
 Seize the moment  
 <br>
-and have a wonderful day!  
+and have a wonderful rest of your day!  
