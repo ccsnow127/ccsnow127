@@ -4,12 +4,12 @@
 <img height="500" alt="JPG" align="left" src="IMG_0181.jpg">
 </div>
 
-Find your state of being
+Find your state of being  
 <br>
-Feel the flow of intrinsic energy and joy
+Feel the flow of intrinsic energy and joy  
 <br>
-Life is too good and short to hold onto grudges
+Life is too good and short to hold onto grudges  
 <br>
-Seize the moment
+Seize the moment  
 <br>
-and have a wonderful day!
+and have a wonderful day!  
