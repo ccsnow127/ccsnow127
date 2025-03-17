@@ -4,8 +4,12 @@
 <img height="500" alt="JPG" align="left" src="IMG_0181.jpg">
 </div>
 
-Thanks for visiting my GitHub.  
+Find your state of being
 <br>
-I hope you're healthy, happy, and loved :)  
+Feel the flow of intrinsic energy and joy
 <br>
-Have a wonderful day!
+Life is too good and short to hold onto grudges
+<br>
+Seize the moment
+<br>
+and have a wonderful day!
