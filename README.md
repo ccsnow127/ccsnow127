@@ -6,7 +6,7 @@
 
 Find your state of being  
 <br>
-Feel the flow of intrinsic energy and joy  
+Feel the flow of intrinsic love and joy  
 <br>
 Life is too good and short to hold onto grudges  
 <br>
