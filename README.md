@@ -1,5 +1,3 @@
 # Hi, I am CiCi.
 
-Seize the moment  
-<br>
-and have a wonderful rest of your day!  
+Welcome to the world of CiCi..
